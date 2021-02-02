@@ -1,0 +1,2 @@
+# NOmotard
+allah hoo akbar
